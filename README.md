@@ -1,0 +1,1 @@
+rMethod was a old roblox revival of mine, and this repo is where the src would have been hosted. fun while it lasted. now PLEASE do not make a roblox revival in this day and age, its just a shithole of a place and comunity. rMethod will NOT be coming back till either i can find or make a good src, never selling !
